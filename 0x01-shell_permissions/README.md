@@ -1,1 +1,1 @@
-life is good
+nice
